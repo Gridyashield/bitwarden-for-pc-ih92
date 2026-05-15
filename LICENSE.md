@@ -1,4 +1,4 @@
-# 
+# best Bitwarden for PC | Bitwarden for Windows Addon | biometric-login + offline-access is the best Bitwarden for PC | Bitwarden for Windows addon, featuring biometric-login and
 
 
 
